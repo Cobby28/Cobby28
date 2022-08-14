@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cobby28
+- 👋 Hi, I’m @Cobby28 (Rock Kwabena Bour Antwi)
 - 👀 I’m interested in studying and in teamwork as we have fun
 - 🌱 I’m currently learning software engineering 
 - 💞️ I’m looking to collaborate on projects together
